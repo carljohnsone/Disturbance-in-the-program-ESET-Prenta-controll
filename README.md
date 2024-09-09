@@ -1,0 +1,1 @@
+The (ESET) program, which has a high level of security and is a product of the () company, can be used to send messages to children's personal mobile phones. With this trick, this program can be completely disabled.
